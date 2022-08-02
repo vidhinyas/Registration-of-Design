@@ -1,0 +1,2 @@
+# Registration-of-Design
+Now and then, companies around the globe get confronted with the issue of design infringement. While the problem seems lucrative for some people, for the companies, it results in mass losses and a heavy downslide in terms of revenue and company reputation.  Being one of the most prominent legal services consultants, Vidhinyas Solicitors &amp; Associates clarifies that the purpose of the Design Act-2000 is to safeguard a unique design crafted with innovation and skills.
